@@ -1,4 +1,4 @@
-didyrartabnine# C-journey
+jjdidyrartabnine# C-journey
 C++ code repository
 Ata kajresa masi
 will add
