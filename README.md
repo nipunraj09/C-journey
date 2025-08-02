@@ -1,4 +1,4 @@
-guhitamemastlithjjdidyrartabnine# C-journey
+buguhitamemastlithjjdidyrartabnine# C-journey
 C++ code repository
 Ata kajresa masi
 will addbbc
