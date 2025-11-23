@@ -1,4 +1,4 @@
-gbedtuntunleo hellalujha help me zorouhbenrdnkdabtilhidshcentraltyutfgyediundjinerworld mein set hbuguhitamemastlithjjdidyrartabnine# C-journey
+higbedtuntunleo hellalujha help me zorouhbenrdnkdabtilhidshcentraltyutfgyediundjinerworld mein set hbuguhitamemastlithjjdidyrartabnine# C-journey
 C++ code repository
 Ata kajresa masi
 will addbbc
